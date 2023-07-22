@@ -1,7 +1,7 @@
 ## Hello, It's me! Yu Ling Liu ✌️
 
 # 💫 About Me:
-🏦I'm currently working at Bank of America.<br>🔍I'm looking to collaborate on cybersecurity field.<br>📖I'm currently learning more about risk analysis.<br>💡Ask me anything about finance or any tax-related stuff.<br>📮How to reach me: Email - Yuling.liu719@outlook.com.<br>⚡️Fun fact: Movies got interested in hacking business and brings helpless.<br><br><br><br>
+🏦I'm currently working at Bank of America.<br>🔍I'm looking to collaborate on cybersecurity field.<br>📖I'm currently learning more about risk analysis.<br>💡Ask me anything about finance or any tax-related stuff.<br>📮How to reach me: Email - Yuling.liu719@outlook.com.<br>⚡️Fun fact: Movies got me interested in prevention of hacking business and brings helpless.<br><br><br><br>
 
 
 ## 🌐 Socials:
